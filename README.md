@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://hl410-s2i.pages.dev/">每日分享最新黑料吃瓜网</a>
 
-点击访问：<a href="https://cg66-05.pages.dev/">50度灰</a>
+点击访问：<a href="https://cg66-05.pages.dev/">50度灰不打烊</a>
 
 点击访问：<a href="https://cg47-01.pages.dev/">黑料社在线</a>
 
